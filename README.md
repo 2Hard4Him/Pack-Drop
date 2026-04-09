@@ -19,7 +19,7 @@
 ​Connect with Me
 
 
-- ​YouTube: youtube.com/@2hard4him
+- ​YouTube: https://youtube.com/@2hard4him
 
 - ​Discord: https://discord.gg/CczP5ezyHH
 
